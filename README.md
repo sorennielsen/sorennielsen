@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hello there 👋
 
 Developer living and working in Copenhagen. Big lover of music and concerts, 
 and also enjoy festivals during the summer.
